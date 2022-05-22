@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Blackpyramid255
-- 👀 I’m interested in .making an app for choosing a winner in Bering sites .
+- 👀 I’m interested in .making an app for choosing a winner in Beting sites .
 - 🌱 I’m currently learning ...on how to start a project above
 - 💞️ I’m looking to collaborate on ...making the app 
 - 📫 How to reach me ...@whatsapp +255684044026
